@@ -1,9 +1,11 @@
-LeiDell 的第二个Github号
-LeiDell那个号密码忘了
-所以LeiDell我注册了LeiDellTech
+LeiDell / Xwwcc
+[LeiDell.cn](https://leidell.cn)
+Grow infinitely together.
 
-Welcome to LeiDell's Github!
+I'm Join The Project
+[WatchGeek 表极客](https://watchgeek.cn) And [WaveMusic波浪音乐](https://wave.watchgeek.cn)
 
-I'm form China
+Thank.
 
-Thank everbody !!!
+              -  LeiDell
+              25.7.6 PM 2:20
