@@ -5,7 +5,7 @@ Grow infinitely together.
 I'm Join The Project
 [WatchGeek 表极客](https://watchgeek.cn) And [WaveMusic波浪音乐](https://wave.watchgeek.cn)
 
-Thank.
+Thanks
 
-              -  LeiDell
+              - LeiDell
               25.7.6 PM 2:20
